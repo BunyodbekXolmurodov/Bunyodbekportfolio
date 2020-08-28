@@ -1,0 +1,2 @@
+# Bunyodbekportfolio
+Privade portfolio
